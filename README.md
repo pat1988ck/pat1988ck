@@ -2,7 +2,7 @@
 - 👀 I’m corrently working on ... YouTube Facebook
 - 🌱 I’m currently learning ... watching tips for apex
 - 💞️ I’m looking to collaborate on ...vew jz
-- 📫 How to reach me ... [YouTube Channel](http://Am3gO.video)
+- 📫 How to reach me ... [YouTube Channel](http://Am3g0.video)
 
 <!---
 pat1988ck/pat1988ck is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
